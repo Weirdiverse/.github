@@ -8,6 +8,6 @@
 - Alicake - Developer/Artist
 - Olzie-12 - Developer/Website Developer
 - iWillBanU - Website Developer
-- JimTheScientist Developer
+- JimTheScientist - Developer
 # 
 ###### The weirdiverse is vastly expansive...
